@@ -1,0 +1,1 @@
+##These are my added notes for class on 1/27/2021
